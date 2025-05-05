@@ -66,6 +66,7 @@ The archives included here were created AFTER the original YouTube archives were
 All of it is true. Viewer discretion is advised. These items are NOT SAFE FOR WORK.
 
 <hr />
+
 ## PROOF OF CONCEPT & DISCLAIMER
 
 The term 'skipjack' is used here due to the fundamental process of A/B handoff. EG left side, right side, middle, ends only, middle only, left only, etc. Many times you will see messages that alternate back and forth or follow patterns. This is not as easy to find on YouTube as it is to see within the reddit archives included here, which are read from top to bottom and then left to right like a book. 
